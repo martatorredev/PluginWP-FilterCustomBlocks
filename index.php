@@ -1,0 +1,1 @@
+// “Some people talk because they think sound is more manageable than silence.” ― Margaret Halsey
